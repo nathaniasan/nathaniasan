@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning everything and i wanna be gucci gang
 - 👯 I’m looking to collaborate with other people
-- 🥅 my  Goals: sebelum lulus udah punya aset crypto kek elon musk dan penghasilan
+- 🥅 my  Goals: sebelum lulus udah punya aset crypto kek elon musk dan membeli twitter
 -  you can visit my blog https://palingdekatdenganmu.blogspot.com/
 
 
